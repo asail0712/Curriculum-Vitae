@@ -1,4 +1,4 @@
-[履歷與基本資料](https://drive.google.com/file/d/1LIL-mIRNeM7RYzZTLoLJ_YyVeKU04nUj/view?usp=sharing)
+[履歷與基本資料](https://drive.google.com/file/d/1ZAjW2qF_6l6knTYwSGAa6X0Z9fR4HaVt/view?usp=drive_link)
 
 [有趣的專案經歷](https://docs.google.com/spreadsheets/d/1SRBdVazNhNFQMx4WfTK3zyPnbB9KW8WXvQ5Aus7OIlQ/edit?gid=2032094807#gid=2032094807)
 
